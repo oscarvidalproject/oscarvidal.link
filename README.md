@@ -1,5 +1,5 @@
 # oscarvidal.link
-Personal Projects and Info
+Personal Projects and Professional Info
 <br>
 I am a Cloud Architect who enjoy Finance and Macro-Economics 
 <br>
